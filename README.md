@@ -1,5 +1,5 @@
 #  A simplified man without proper knowledge🤡
-- In common with Win32 API
+- In common with selenium, scrapy, xpath and so on
 - Familliar with Python massivelly. Especially any kind of automized systems, such as bots and etc.
 - Looking towards big project
 
