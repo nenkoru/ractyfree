@@ -4,7 +4,8 @@
 - Looking towards big project
 
 ------------
-[Hire me](https://t.me/ractyfree "Hire me")
+[Hire me](https://vladivostok.hh.ru/resume/f4489743ff07a0af8a0039ed1f56364a546d41 "Hire me")
+
 [Contact me](https://t.me/ractyfree "Contact me") [(2)](https://vk.com/racty "(2)")
 
 
